@@ -1,1 +1,1 @@
-# diabetic rentopathy
+# diabetic rentinopathy
